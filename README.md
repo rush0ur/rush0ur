@@ -1,4 +1,4 @@
-<p align=center>˗ˏˋ ༺𓆩༒︎𓆪༻ ˎˊ˗
+<p align=center>─ ──⟡ ༺𓆩༒︎𓆪༻ ⟡── ─
   <p align=center> `@ . ᴛᴇꜱ , ᴇʟʟɪᴏᴛㅤᴛʜᴇʏ/ᴛʜᴇᴍ
 
 .
