@@ -1,5 +1,5 @@
 <p align=center>˗ˏˋ ༺𓆩༒︎𓆪༻ ˎˊ˗
-  <p align=center> `@ . ᴛᴇꜱ , ᴇʟʟɪᴏᴛ . ᴛʜᴇʏ/ᴛʜᴇᴍ
+  <p align=center> `@ . ᴛᴇꜱ , ᴇʟʟɪᴏᴛㅤᴛʜᴇʏ/ᴛʜᴇᴍ
 
 .
     
