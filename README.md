@@ -1,5 +1,9 @@
 <p align=center>˗ˏˋ ༺𓆩༒︎𓆪༻ ˎˊ˗
-<p align=center> c + h freely when im alone 〃 no need to ask
-<p align=center> usually offtab ── w2i or sign ata
+  <p align=center> `@ . ᴛᴇꜱ , ᴇʟʟɪᴏᴛ . ᴛʜᴇʏ/ᴛʜᴇᴍ
+
+.
+    
+<p align=center> ᴄ + ʜ ꜰʀᴇᴇʟʏ ᴡʜᴇɴ ɪᴍ ᴀʟᴏɴᴇ 〃 ɴᴏ ɴᴇᴇᴅ ᴛᴏ ᴀꜱᴋ
+<p align=center> ᴜꜱᴜᴀʟʟʏ ᴏꜰꜰᴛᴀʙ ── ᴡ2ɪ ᴏʀ ꜱɪɢɴ ᴀᴛᴀ
 
 wip
